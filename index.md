@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+ETAKKI JIU JITSU TEAM: EJJ 
 ---
 
